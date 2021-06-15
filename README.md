@@ -1,0 +1,1 @@
+This is my first git project! Fuck yeah! I'm on a journey to bettering myself and I'm happy to see myself make progress in life! I am growing and becoming better with each passing day and I hope to reach a point where I don't have to rely on negativity to feel better about myself. Every step forward counts!
